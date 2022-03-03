@@ -1,0 +1,1 @@
+ingin menjadi apa
